@@ -1,1 +1,1 @@
-# The-middle-class-and-British-novel
+# The-middle-class-and-British-novel[Boulukos, The Novel and the Middle Class in English Studies.pdf](https://github.com/Reordberend7/The-middle-class-and-British-novel/files/11018752/Boulukos.The.Novel.and.the.Middle.Class.in.English.Studies.pdf)
